@@ -8,8 +8,9 @@ Owned by Nica Frances B. Driz
 ### Creating Websites
 
 My hobbies are:
-```markdown
-Syntax highlighted code block
+1. Calligraphy
+2. Editing
+3. Listening to music
 
 # Header 1
 ## Header 2
