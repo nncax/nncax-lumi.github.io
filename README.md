@@ -8,8 +8,8 @@ Owned by Nica Frances B. Driz
 ## About Me
 Nica Frances B. Driz, a typical student, has her own set of skills and interests. She is an ANIRP member, a sister, and a furbaby parent ( a pet owner). She enjoys bringing words to life, allowing the reader's imagination to wander and imagine. She writes and composes the abode's captions as a member of a well-known sisterhood in the RPW community, where she uses her skills to give details towards its concepts.
 
-
-
+---
+## Hobbies
 # Calligraphy
 ## Header 2
 ### Header 3
