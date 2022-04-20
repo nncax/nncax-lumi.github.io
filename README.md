@@ -6,7 +6,7 @@ Owned by Nica Frances B. Driz
 
 ---
 ## About Me
-
+As an average student Nica Frances B. Driz has her own sets of skills and hobbies. She is a part of the community ANIRP, a sister and a furbaby parent ( a pet owner)
 My hobbies are:
 1. Calligraphy
 2. Editing
